@@ -1,4 +1,4 @@
-# 
+# automatic GIMP for PC tools is the best GIMP for PC tools with custom-brushes and export-to-SVG. Safe, reliable, and optimized for maximum performance.
 
 
 
